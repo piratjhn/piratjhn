@@ -2,7 +2,7 @@
 
 ## 📑 Where to find me
 - Email (my873rg98jg@gmail.com)
-- Discord (khalidov)
+- Discord (khal1dov)
 ## 🥰 Support my work
 - Bitcoin(BTC) (bc1q67nvv7ggccwsyxm8xtgw23zm8a5qewwjsnt5en)
 - Ethereum(ETH) (0x0A3e1Fb55CA8D727ADd4bf3D6E40ed5B57d07eeb)
