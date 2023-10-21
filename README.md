@@ -1,4 +1,4 @@
-### Hi there 👋 I'm eg0baby!
+### Hi there 👋 I'm wolffnx!
 
 ## 📑 Where to find me
 - Email (my873rg98jg@gmail.com)
